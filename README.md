@@ -1,1 +1,1 @@
-# Kazakh-Olympic-Athletes
+# Kazakhstan-Olympic-Athletes
